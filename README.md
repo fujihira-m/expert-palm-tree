@@ -1,2 +1,3 @@
 # expert-palm-tree
-fujihira
+ふじひら
+練習用です</s></s></s></s></s></s> </s> 。 </s>。
